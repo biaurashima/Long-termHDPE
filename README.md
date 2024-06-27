@@ -1,0 +1,1 @@
+These data were generated and published with the authorization of the company responsible for the mining site. The latest PAEBM report for the dam can be found at the following link: https://jaguarmining.com/site/assets/files/2697/mtl-plm-gm-340-rt-0005-secao-ii_r2.pdf.
